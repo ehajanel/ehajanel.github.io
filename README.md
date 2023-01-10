@@ -14,3 +14,4 @@ trucos muy locos del profesor
 las personalidades del profesor
 creado por el increible edgar ajanel del futuro.
 incluye ejemplos en windows linux y mac.
+disponible para todas las edades.
